@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AhellaEhab
 - 👀 I’m interested in ... digital marketing and ENGLISH
 - 🌱 I’m currently learning ... dentistry
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...spread learning
 - 📫 How to reach me ...phone number 01032583644
 
 <!---
